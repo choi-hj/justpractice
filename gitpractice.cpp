@@ -1,1 +1,3 @@
-hi freinds``
+h
+
+it was cool guys. i freinds``
